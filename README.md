@@ -1,1 +1,1 @@
-# Lingue-anding-pages
+# Lingue-landing-pages
